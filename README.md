@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Google LLC**
 
-- 👨‍💻 All of my projects are available at [chestasitorus.my.id](chestasitorus.my.id)
+- 👨‍💻 All of my projects are available at [www.chestasitorus.my.id/](www.chestasitorus.my.id/)
 
 - 📫 How to reach me **chestamahardikafadillasitorus@gmail.com**
 
